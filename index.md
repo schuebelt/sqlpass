@@ -1,1 +1,1 @@
-Material zur Präsentation wird *in den nächsten Tagen* hochgeladen.
+Material zur Präsentation wird **in den nächsten Tagen** hochgeladen.
