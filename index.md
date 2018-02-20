@@ -1,1 +1,1 @@
-Material zur Präsentation wird **in den nächsten Tagen** hochgeladen.
+Material zur Präsentation vom 20.2.2018 wird **in den nächsten Tagen** hochgeladen.
